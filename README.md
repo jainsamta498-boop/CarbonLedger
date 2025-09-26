@@ -123,3 +123,5 @@ For questions, suggestions, or partnerships, please reach out to our team at con
 Contact Address 0xc0065943511744f41293CD9AbECC5e074CD710A1
 Building a sustainable future, one carbon credit at a time. 🌱
 
+<img width="1266" height="674" alt="image" src="https://github.com/user-attachments/assets/effc4c6a-0f46-4706-990d-b989205eea26" />
+
